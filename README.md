@@ -3,7 +3,7 @@
 
 ### Membros:
 
-• Sabrina Sampaio
+• Sabrina Sampaio\n
 • Alexandre Young
 • Paulo Tozzo
 • Pedro de la Peña
